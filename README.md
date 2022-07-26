@@ -6,3 +6,6 @@ July 20th: https://app.goto.com/meetings/history/sessions/1473168984369023270<br
 July 21st: https://app.goto.com/meetings/history/sessions/1191642330634083366<br>
 July 22nd: https://app.goto.com/meetings/history/sessions/5141942418162421541<br>
 July 23rd: https://app.goto.com/meetings/history/sessions/2474279819083622437<br>
+
+
+July 26th : https://app.goto.com/meetings/history/sessions/8411597529174844725
